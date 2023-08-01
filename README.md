@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NotAoAo
+- 👀 I’m interested in traveling
+- 🌱 I’m currently learning how to code
